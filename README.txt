@@ -1,1 +1,0 @@
-asd i hate the jews
